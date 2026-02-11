@@ -13,13 +13,13 @@
   
 
 
-💡 &nbsp;Eu gosto muito de aprender sobre design (web, jogos, etc.) e também curto aprender outros idiomas, sejam eles inglês ou não.\
+💡 &nbsp;Eu gosto muito de aprender sobre design (web, jogos, etc.) e também curto aprender outros idiomas, sejam eles inglês ou não.
 
-🎓 &nbsp;Atualmente, estou estudando Análise e Desenvolvimento de Sistemas no Instituto de São Paulo.\
+🎓 &nbsp;Atualmente, estou estudando Análise e Desenvolvimento de Sistemas no Instituto de São Paulo.
 
-🌱 &nbsp;Na verdade, estou tentando aprender tudo o que for possível para mim, com um foco especial em design de forma geral.\
+🌱 &nbsp;Na verdade, estou tentando aprender tudo o que for possível para mim, com um foco especial em design de forma geral.
 
-✍️ &nbsp;No meu tempo livre, gosto de aprender sobre astronomia, que é meu principal hobby. Também adoro expandir meu conhecimento em diversos assuntos.\
+✍️ &nbsp;No meu tempo livre, gosto de aprender sobre astronomia, que é meu principal hobby. Também adoro expandir meu conhecimento em diversos assuntos.
 
   
 
