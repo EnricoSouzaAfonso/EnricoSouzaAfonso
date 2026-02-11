@@ -13,19 +13,19 @@
 
   
 
-💡 &nbsp;I really like learning about design (web, game, etc.), and I also enjoy learning other languages(whether if they are English or not).\
+💡 &nbsp;I really like learning about design (web, game, etc.), and I also enjoy learning other languages(whether if they are English or not).
 
   
 
-🎓 &nbsp;I'm currently studying Systems Analysis and Development on the Institute of São Paulo.\
+🎓 &nbsp;I'm currently studying Systems Analysis and Development on the Institute of São Paulo.
 
   
 
-🌱 &nbsp;Actually, I'm trying to learn everything that is possible for me, with a focus on design in general.\
+🌱 &nbsp;Actually, I'm trying to learn everything that is possible for me, with a focus on design in general.
 
   
 
-✍️ &nbsp;In my free time, I enjoy learning about astronomy as my main hobby. I also love expanding my knowledge on a variety of topics.\
+✍️ &nbsp;In my free time, I enjoy learning about astronomy as my main hobby. I also love expanding my knowledge on a variety of topics.
 
   
   
